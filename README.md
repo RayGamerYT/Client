@@ -1,0 +1,4 @@
+- 👋 Hi, I Am RayGamerYT
+- 🎮 I Am Gamer & Minecraft and Sonic Fan
+- Coder & Content Creator
+- YouTuber
